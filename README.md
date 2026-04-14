@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently on the journey of my B.Tech in Computer Science and Engineering from IITRAM Ahmedabad<br>🤝 I’m looking for help with my Carrer paths, internships, and many more<br>🌱 I’m currently learning Web Development<br>💬 Ask me about anything you want<br>⚡ Fun fact: I play FF🤡
+🔭 I’m currently on the journey of my B.Tech in Computer Science and Engineering from IITRAM Ahmedabad<br>🤝 I’m looking for help with my Carrer paths, internships, and many more<br>🌱 I’m currently learning Web Development<br>💬 Ask me about anything you want<br>
 
 
 ## 🌐 Socials:
